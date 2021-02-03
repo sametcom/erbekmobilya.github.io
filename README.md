@@ -1,2 +1,2 @@
-# erbekmobilya.github.io
+http://erbekmobilya.github.io
 şirket
